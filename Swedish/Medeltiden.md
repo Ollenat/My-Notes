@@ -89,6 +89,19 @@ De som jag tidigare har nämnt är
 Shams al-din Mohammad eller Hafiz, Heliga Birgitta och Dante Alhigiereireirerieir. 
 
 ## Fördjupning av författare
+Men någon som jag inte har tagit upp är Giovanni boccaccio. Denne man var född som ett oäkta barn och som femtonåring flyttade han till staden Neapel och där träffade han en grevinna som han fick upp ögonen för. Denna grevinna hette Maria d'aquino och hon var speciell för Giovanni. Man tror nämligen att hon var inspirationen till fiametta, en otrogen musa i ett av giovannis tidiga verk. Maria spelade inte bara roll för den berättelsen heller. Nej, eftersom Giovanni blev så intresserad av Maria och hon var grevinna, alltså adel, kon Giovanni in i den kulturen och fick då idén att börja skriva. 
+
+Men nog om Giovanni, vad har han skrivit egentligen?
+
+Hans första verk, som riktar sig mot Maria d'aquino, kallades, filocolo och filostrato. Översatt från italienska blir filocolo ungefär, 'kärlekens möda' och filostrato ungefär 'Den av kärlek besegrade'. **Vad handlar dessa om?**
+
+Hans mest berömda verk är diktsamlingen Decamerone. Och Decamerone är speciell för lyssan på detta: Med Decamerone skapade Giovanni novellgenren!!!! Hur sjukt är inte det! Jag tycker det är coolt i alla fall. Men vad handlar Decamerone om? Jo, decamerone handlar om att digerdöden drabbar sig över staden florens och därifrån flyr 10 ungdomar till ett lantställe för att slippa undan. Där stannar de under tio dygn. Under dessa tiodagarna berättar de 10 historier varje kväll, så totalt 100 historer berättas under vistelsen på gården. Dessa historiers tema är varierande, alltså ungdomarna berättade alltifrån kärlekshistorier och erotiska berättelser till fundersamma, långdragna gåtor men också skämtsamma historier. 
+
+
+
+
+
+
 
 
 Om behövs mer: https://www.google.com/search?q=litteratur+under+medeltiden&rlz=1C1GCEB_enSE967SE967&oq=litteratur+under+medeltiden&aqs=chrome..69i57j0i22i30l4.5355j0j7&sourceid=chrome&ie=UTF-8&safe=active&ssui=on#fpstate=ive&vld=cid:b86042b8,vid:Zl5TZqOClJs
