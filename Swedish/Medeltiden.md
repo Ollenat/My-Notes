@@ -1,4 +1,4 @@
-(Litteraturhistoria)
+ (Litteraturhistoria)
 ## Introduktion
 Medeltiden är, som ni alla vet, en tidsperiod. Men ungefär när varade den? Jo, medeltiden utgjör tidsperioden från antikens slut till renässansens början. Det är ungefär från år **500 e.Kr - 1500 e.Kr.** Begreppet medeltid är ett begrepp som man i efterhand har använt. Men egentiligen så kommer det från renässansen, tidsperioden efter medeltiden. Under renässansen tyckte man sig ha "återupptäckt" antikens skönhet och därför såg man på medeltiden som en slags mellantid. Och med den tidens svenska blev därför den mellantiden kallad medeltiden.
 
@@ -93,9 +93,17 @@ Men någon som jag inte har tagit upp är Giovanni boccaccio. Denne man var föd
 
 Men nog om Giovanni, vad har han skrivit egentligen?
 
-Hans första verk, som riktar sig mot Maria d'aquino, kallades, filocolo och filostrato. Översatt från italienska blir filocolo ungefär, 'kärlekens möda' och filostrato ungefär 'Den av kärlek besegrade'. **Vad handlar dessa om?**
+Hans första verk, som riktar sig mot Maria d'aquino, kallades, filocolo och filostrato. Översatt från italienska blir filocolo ungefär, 'k3ärlekens möda' och filostrato ungefär 'Den av kärlek besegrade'. 
 
 Hans mest berömda verk är diktsamlingen Decamerone. Och Decamerone är speciell för lyssan på detta: Med Decamerone skapade Giovanni novellgenren!!!! Hur sjukt är inte det! Jag tycker det är coolt i alla fall. Men vad handlar Decamerone om? Jo, decamerone handlar om att digerdöden drabbar sig över staden florens och därifrån flyr 10 ungdomar till ett lantställe för att slippa undan. Där stannar de under tio dygn. Under dessa tiodagarna berättar de 10 historier varje kväll, så totalt 100 historer berättas under vistelsen på gården. Dessa historiers tema är varierande, alltså ungdomarna berättade alltifrån kärlekshistorier och erotiska berättelser till fundersamma, långdragna gåtor men också skämtsamma historier. 
+
+*utdrag*
+
+Och detta är också intressant: Giovanni levde på 1300-talet då digerdöden härjade som mest och sedan skriver han en bok om ett par ungdomar som flyr till ett lantställe för att slippa undan pandemin. Skulle det kunna vara så att han kände så när han var ungdom. Eller att han kände så när han skrev berättelsen? Det kommer vi nog aldrig få reda på?
+
+tack för att du lyssnat på mitt berättande av litteratur under medeltiden. 
+
+*Eftertexter*
 
 
 
