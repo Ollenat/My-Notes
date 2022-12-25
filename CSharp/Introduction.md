@@ -7,7 +7,7 @@ C# is a modern programming language developed by Microsoft. It was originally in
 * *Versitile*, thanks to .[[NET]] Core, recently renamed .[[NET]]. 
 * *Built-in memory handling*.
 * *Popular*, thanks to these characteristics. Especially with companies that work on long-term projects as well as projects handling big amounts of data (because of the resilient to errors and bugs).
-* 
+* Built to be used object oriented. ([[OOP]])
 
 READ [THIS](https://learn.microsoft.com/en-us/dotnet/csharp/tour-of-csharp/) 
 
