@@ -1,0 +1,1 @@
+When writing C# code one does not need to worry about 'cleaning up' after oneself. The .NET runtime does this automatically. It knows where there are classes and variables that no longer are needed and frees up that memory space. Horray!
