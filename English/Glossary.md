@@ -6,3 +6,7 @@
 - **Loiter** - to hang around with no apparent purpose (Dröja kvar)
 - **Philanthropy** - wanting to help others, the desire to promote the welfare of others. 
 - **Immutable / Immutability** - Unchanging over time, or unability to be changed. Static. 
+- **Rebuke**
+- **Recede**
+- **Torrential**
+- **Torrent**
