@@ -1,0 +1,1 @@
+Energi kan inte förstöras eller skapas, bara omvandlas. 

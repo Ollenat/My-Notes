@@ -1,10 +1,14 @@
+Arbete innebär att krafter verkar på föremål så att en förflyttning sker. 
+
 Arbete betecknas W. Här är W en storhet (för Work). Om det står ett mätetal innan är det Watt. (Står W i en formel är det storheten, alltså Work)
 
-Formel: `F * s = W` (Kraften och sträckan måste ha samma riktning)
+Formel: `F * delta s = W` (Kraften och sträckan måste ha samma riktning)
 Enheter: `[N] * [m] = [Nm]` 
 `[Nm] = J(joule)
 
 `1Nm = 1J`
+
+För att en kraft ska utföra ett arbete måste en förflyttning ske, samt att kraften och förflyttningen/sträckan måste vara parallella. Om förflyttningen är **noll** utförs inget arbete även om en förflyttning har skett. 
 
 ### Exempel:
 Vi vill lyfta upp en stol en meter 1m upp i luften. 

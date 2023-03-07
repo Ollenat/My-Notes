@@ -1,0 +1,1 @@
+Varför flyttar man inte ned x:et i en exponentialfunktion när man deriverar den?

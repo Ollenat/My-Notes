@@ -15,3 +15,7 @@ Enheter: `[Nm] = [kg] * [m/s^2] * [m]` = `[Nm] = [N] * [m]`
 **Rörelseenergi**
 Formel: `Ek = (m * v^2)/2`
 Enheter: `[Nm] = ([kg] * [m/s]^2)/2`
+
+**Mekanisk energi**
+Formel: `Em = Ek + Ep`  
+Enheter `[J] = [J] + [J]`
