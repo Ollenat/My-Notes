@@ -21,4 +21,18 @@ Mark woke up sweaty, yet alert. He'd had a nightmare. *It's only a nightmare, no
 
 It looked fine. The rune was still intact and hid itself at the best of it abilities. As Mark was returning outside he concluded the dust must've blown there and not fallen from the roof or wall. The wind was strong today, but mark had prepared his clothes for this day a long time so the wind didn't bother him. He'd put low level runes on the clothes so they would keep him confortable, protected and also take care of his biological needs. Much like his ancestors had put the rune on his house, although that rune was made so the house wouldn't be able to get damaged or destroyed. 
 
-When Mark entered school he was greeted by his pal Omnic. Omnic had red hair, yellow gleaming eyes and a bandana around his neck. He wore a T-shirt filled with celebrities signature runes, of course copied from a book in the library by Omnic himself. As for pants, Omnic had military green cargopants, filled to the brim with unimportant stuff. "Whoa you're decked out dude!" Omnic said when he saw Marks clothes. Mark wore his signature mustard-yellow beanie. But, he wore that everyday. Omnic meant Marks other clothes, the ones with runes. It was a pair of black pants which fitted marks legs perfectly, not too tight, not too loose. To add to that, Mark had knee protection of  rune inscripted steel, agility enhancing runes on his black, sturdy boots and a belt around his legs carrying essentials. Then he had a white jacket with a sword on his back and black gloves that he has cut off at the end of each finger.  
+When Mark entered school he was greeted by his pal Omnic. Omnic had red hair, yellow gleaming eyes and a bandana around his neck. He wore a T-shirt with a grafitti print on it, of course designed by Omnic himself. As for pants, he had military green cargopants, filled to the brim with unimportant stuff. "Whoa you're decked out dude!" Omnic said when he saw Marks clothes. Mark wore his signature mustard-yellow beanie. But, he wore that everyday. Omnic meant Marks other clothes, the ones with runes. It was a pair of black pants which fitted marks legs perfectly. To add to that, Mark had knee protection of rune inscripted steel, agility enhancing runes on his black, sturdy boots and a belt around his legs carrying essentials. Then he had a white jacket with a sword on his back and black, open-finger gloves.
+
+"Good to see you too Omnic" Mark replied with a smile on his face. Dispite the nightmare Mark had last night, he was feeling good about today. He was going to do his best, and that is what matters. "If you do your best, destiny will guide you" his father always said. _So thats what im going to do!_
+
+"You comin Mark? Why you taking so long? Lets head in!" Omnic called out standing in front of the gate to the assembly hall. "Yeah! Wait up Omnic!" as Mark is quickly making his way to the door, Omnic slips through the gate. 
+
+Mark entered the assembly hall with his eyes scouring the room. In the back left corner, the cloudsky faction are gathered. Their signature turqoise coats subtly glowing. Figuring its due to a rune, Mark continues to look around the assembly hall.
+
+_There he is! That bastard Omnic, aleays running off wothout his mates!_ As Mark once again catches up to Omnic, he makes a right turn now walking towards the stage, passing the poison faction and the charging faction. Further making his way towards Omnic, now at the other side of the hall, Mark has the stage on his right and the front-row of teachers to his left. 
+
+"Hi Mark!" Mrs. Clou says. "Hi Mrs. Clou!" He replies with a giant smile, unable to repress the excitement of the future mixed with the tycicity of the Mark-chasing-Omnic Situation. "Are you nervous?" Mrs. Clou asks
+
+As Mark grabbed the handle of the assembly hall gate, a thought crosses his mind. _I dreamt about this._
+
+There was too many details 
